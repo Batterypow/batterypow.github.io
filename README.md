@@ -1,4 +1,6 @@
-# batterypow.github.io  Política de privacidad
+# batterypow.github.io  
+
+Política de privacidad
 
 Última actualización: 19 de agosto de 2017
 
